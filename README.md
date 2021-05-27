@@ -1,2 +1,2 @@
 # radrad
-i am trying to upload my ist website code.
+i am starting my github account.
